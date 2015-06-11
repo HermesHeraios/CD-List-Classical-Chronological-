@@ -17,8 +17,6 @@ Died c. 2000: Hello? Hello in there! Gimme the flashlight. Wow, it's like the bu
 
 Died c. 1750
 
-Composer Bios 
-
 Vivaldi: 
 
 Vivaldi may have been the antique Roman apostle to the violins and the orphaned daughters of scandal, but of all the composers, he was perhaps the only one not too lazy to invent an actual frickin' title for his classical compositions. On July 28, 1741 the time and the season called for his death, so he died. 
@@ -30,6 +28,8 @@ JS Bach:
 Origin Bach may have been the cranky, authoritarian grandfather of ancient times, who wanted life to follow brain-y, strait-laced schoolmaster rules, but of all the composers, he had perhaps the largest brain, that is estimated to have contained an encyclopedia of musics. On July 28, 1750, his brain exploded, and he died. 
 
 JS Bach Quote: You remember the quadratic equation?.... Good. Then you are permitted to go home and sleep. 
+
+Died c. 1800
 
 Mozart: 
 
@@ -49,6 +49,7 @@ Clementi may be this obscure Anglo-Italic from the Kingdom of the Germans who yo
 
 Clementi Quote: I don't really like Mozart operas. My moral sense is violated. And then, I can almost hear him giggle.
 
+Died c. 1850
 
 Chopin: 
 
@@ -123,6 +124,8 @@ Fleetwood Mac Guy: *Dionysios hair* Yeah man, it was really cool.
 Mozart: So much better, what I write. 
 Aphrodite: *laughs lazily, fondles Wolfie's hair* Always jealous, Robert Clementi, somebody. My little governess. 
 
+Died c. 1900
+
 Tchaikovsky: 
 
 Tchaikovsky may have communicated with his friends solely by mail, for the benefit of future historians, but of all the composers, he was perhaps the greatest champion of ballerinas and the Soviet Union. On (date), a Wagnerite infiltrator in the vanguard of evil poisoned his drinking water, and he died. 
@@ -139,4 +142,14 @@ Brahms
 
 Brahms Quote: I feel alienated from the people around me: isolated. It's a burden, trying not to be contemptible like the others. I often feel afraid of the people around me. North Germans. White people. I feel my opinion of them slipping further and further, over time. Pompous white people. Grasping, empty, quarrelsome white people. White people who are alienated from each other, and isolated from nature. I feel afraid: I don't know what they do to me, when I'm just hanging around. I know that the people in Africa probably feel sad because we destroyed their continent, but I feel sad because I get to live among the North German whites. I feel quite sad, about my life. Maybe I'll write some more shitty music later: there are times, when I don't really dig my whole scene. I think I'm going to go take a walk in the woods. A nice, long walk in the woods. 
 
+Died c. 1950
+
+Gershwin
+
 Prokofiev
+
+Died c. 2000
+
+"Steve Carell"
+
+"Steve Carell" Quote: I love Beethoven. I am a white person, therefore, Beethoven is my King, and my Emperor. I listen to Beethoven, I listen to Beethoven on vinyl. I'm going to ship my kid to some island where there are no doctors and the village is populated by vaguely abusive cartoon character children, and see if that makes them as good at math as JS Bach, or JC Bach, Mozart's friend, who hated his father.... Ah! Civil rights: the end of music. I mean, hang out with really white really bourgeoise people: doesn't it sound like music? I mean, bug music, but. Beethoven, though: the Emperor of *white people*, the Napoleon of music.... What is this? A stop sign? Do I have to stop here, too. Mozart bought on credit, Bach was grudgingly given food to eat by the village church idiots: But Beethoven, I don't think that the laws applied to him, because he was too white, for all that jazz.... He had a license to kill, Beethoven did. Like white people bickering their bug music into existence: they don't think the law applies to them.... But, ah, it's good to be alive. I write music all the time. I actually want to write a ballet, for my daughter to be in. I'm going to have my daughter do the interview with the magazine: maybe I'll bop in for five minutes and tell a string of jokes. I'm sure that the Beethoven Club will riot, burn a few cars. I hope they get arrested. I hate white people, like I hate Beethoven. I hate all white people. No exceptions for the most obnoxious. 
