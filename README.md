@@ -146,6 +146,8 @@ Died c. 1950
 
 Gershwin
 
+Special Note: This is the part where I refuse to acknowledge the author of "Judaism in Music" as a member of the fellowship of humanity. I take it upon myself to banish him from the village.... There's plenty of illness without the bizarre superlative.... That's like a special bonus lecture. Like, I feel a certain affinity for the French, and their Impressionist/hospital painting music, I sorta like ("Pavane"), but actually I hate it. I feel acutely offended when French people turn out to be colonial shithead racists, as they all are. Very expensive, a French person. Squirrels collect nuts, but French people collect arrogance. At least France doesn't manufacture cars anymore, although actually it simply went to Germany: so skilled, the white people. You want to go to Hell? We'll clear a path.... "French and German are different things, even if you can't remember the details of French grammar which grammar Nazis will crucify you over.... (Stalin: How do you say, "Rzeznik"? Molotov: Just point to him and say, You. Stalin: You're really pissed today. That's the secret reason why Molotov does not lead this country.... Molotov: Just point to me and say, You.) Yeah, we're so different from Germans: there's no reason to get upside. "My name is Erik Satie, and this is a Grekischie: so French.... Yet so German.... (Line continues)
+
 Prokofiev
 
 Died c. 2000
