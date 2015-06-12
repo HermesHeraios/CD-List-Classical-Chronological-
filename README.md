@@ -233,6 +233,10 @@ Tchaikovsky Quote: What do you think, Drosselmeyer, is there any hope for people
 
 {That a child of the world would want to risk this great beauty, so that they can chew iron with the krauts, makes me exceeding angry and very very angry. Imagine me doing something dramatic. Now imagine me doing something more dramatic.}
 
+* Swan Lake: Excerpts (1876/1995) [Georgian Festival Orchestra, Vato Kahi], InfinityDigital QK 69273 [ballet]
+
+{"Do you suppose I'm a Nazi, Billy Elliot? You know, if someone were to ask you. Mr Tenderson, he's a bit of a kraut, don't you think?" "Oh no, sir. You're very stern. Maybe a little elitist.... I don't think you meant anything by it, sir.... I don't think you meant anything, by it." *long pause* "Well, you're the Beatle, Billy Elliott." *George Harrison cackles with glee* I like Billy Elliott. I would not want to be Billy Elliott. I am impressed with Billy Elliott.... Imagine if I tried to do that: Hey John, do you suppose that Indians would use C Major more or less than B-Flat Major. Fucker'd look at me like I'd lost my mind, or was trying to start a fight. *Ah.* That was priceless....}
+
 J Strauss: 
 
 Strauss the Son may have been this guy who wrote dance music because it's fun, but of all the composers, he is perhaps the master of rich girl music, which is basically what classical music is. On June 3, 1899, the rich girls mourned dramatically, upon hearing that he had died. 
