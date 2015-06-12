@@ -29,6 +29,10 @@ Origin Bach may have been the cranky, authoritarian grandfather of ancient times
 
 JS Bach Quote: You remember the quadratic equation?.... Good. Then you are permitted to go home and sleep. 
 
+* Goldberg Variations (1741/1993/2011) [Andrei Gavrilov: piano], Universal, 478 3383 [solo piano]
+
+{Yeah, okay, Bach. I mean, fuck you, Bach, but okay. Now get out of my face.}
+
 Died c. 1800
 
 Mozart: 
