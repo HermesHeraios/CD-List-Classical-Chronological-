@@ -237,6 +237,16 @@ Tchaikovsky Quote: What do you think, Drosselmeyer, is there any hope for people
 
 {"Do you suppose I'm a Nazi, Billy Elliot? You know, if someone were to ask you. Mr Tenderson, he's a bit of a kraut, don't you think?" "Oh no, sir. You're very stern. Maybe a little elitist.... I don't think you meant anything by it, sir.... I don't think you meant anything, by it." *long pause* "Well, you're the Beatle, Billy Elliott." *George Harrison cackles with glee* I like Billy Elliott. I would not want to be Billy Elliott. I am impressed with Billy Elliott.... Imagine if I tried to do that: Hey John, do you suppose that Indians would use C Major more or less than B-Flat Major. Fucker'd look at me like I'd lost my mind, or was trying to start a fight. *Ah.* That was priceless....}
 
+* Peter I. Tschaikowsky: Symphony No. 6 (1893/1988) [Radio Symphony Orchestra Ljubljana, Anton Nanut], Pilz CD 160 228 [symphonies]
+
+Special Note: Manufactured by krauts: and they couldn't even be bothered to call it, "The Russian Masters Series". You know, nice kraut, happy kraut.... Do what I say kraut. 
+
+"I know, but it was cheap. If they'd been deep in it, they'd have charged for that."
+
+Okay. 
+
+{Hermes: (giving a lecture) But the rules do apply, white person. (He leans in, and lowers and sharpens his voice.) *The rules do apply.* (door opens) Ah! Peter Tchaikovsky, my favorite friend in the world! Pete, look at what I have to put up with. The little shit is supposed to tell me, "Tell me about a time when you were sad". And look what I have to put up with. *with flare* Look what I have to put up with!}
+
 J Strauss: 
 
 Strauss the Son may have been this guy who wrote dance music because it's fun, but of all the composers, he is perhaps the master of rich girl music, which is basically what classical music is. On June 3, 1899, the rich girls mourned dramatically, upon hearing that he had died. 
