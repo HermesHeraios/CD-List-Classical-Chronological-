@@ -35,13 +35,13 @@ JS Bach Quote: You remember the quadratic equation?.... Good. Then you are permi
 
 Died c. 1800
 
-Mozart: 
+(Classical #3?) Mozart: 
 
 Mozart may have sometimes had a personality like a childish teenager, but of all the composers, he was perhaps the one most likely to be energetic and happy. It has been severely documented that on December 5, 1791, Salieri killed him because he was jealous of his girlfriend, and so he died. 
 
 Mozart Quote: Yes, no more rules, no more Emperor Romulus, no more.... Ah, this is good wine. I hope an Italian didn't make it; I don't want to have to feel jealous. We're all Germans; there's no oxygen. Stop. It's Clementi. I hate him. He dances better than I do. I need to find some way to poison his reputation....
 
-Haydn: 
+(Classical #2) Haydn: 
 
 Haydn may have been a funny old, persistent, consistent, country gentleman fellow and occasional London Town aficionado, but of all the composers, he had perhaps the most sincere, fatherly affection for his child-like colleagues. On May 31, 1809, they had to read his will, because he died. 
 
@@ -181,11 +181,15 @@ John Mayer: I'm sorry. I'm afraid of you. I'm going to hide in the hills. I'm le
 
 Died c. 1900
 
-Tchaikovsky: 
+(Classical #1) Tchaikovsky: 
 
 Tchaikovsky may have communicated with his friends solely by mail, for the benefit of future historians, but of all the composers, he was perhaps the greatest champion of ballerinas and the Soviet Union. On November 6 or whatever--Russian calendar! Woot!, 1893, a Wagnerite infiltrator in the vanguard of evil poisoned his drinking water, and he died. 
 
 Tchaikovsky Quote: What do you think, Drosselmeyer, is there any hope for people like us? "I think you've got it bad enough, Peter, and you make it worse for yourself by trying to help everybody else." Well, Drosselmeyer, I try to be that one who isn't a slander to all the others. 
+
+* The Nutcracker: Highlights (1892/1985/1996) [Philharmonia Orchestra, Michael Tilson Thomas], Sony SFK 62675 [ballet]
+
+{That a child of the world would want to risk this great beauty, so that they can chew iron with the krauts, makes me exceeding angry and very very angry. Imagine me doing something dramatic. Now imagine me doing something more dramatic.}
 
 J Strauss: 
 
