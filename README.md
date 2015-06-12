@@ -27,7 +27,7 @@ Don't you find yourself involuntarily drawn to the past: ugh. Must self-consciou
 
 Like we're Cinderella.... Like we're Pete Tchaikovsky....
 
-1989. 
+(1989).
 
 "You have self-consciously refered to a year." 
 
