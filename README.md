@@ -150,6 +150,40 @@ Special Note: This is the part where I refuse to acknowledge the author of "Juda
 
 Prokofiev
 
+Special note: I also wrote something about Prokofiev awhile ago. Do you want to know what I wrote? (Do you want to know a secret? Do you promise not to tell? We're standing beside a wishing well....)
+
+Well, yeah, I know what I wrote, at least.... You know, they'll be some idiot thug, lazy thug: they're all the same. It's like-- Yeah, I agree. Your life really *isn't* worth figuring out. ("The great patience to be so.... As they all are." People don't listen to you if you say meaningless, literal things.)
+
+Like John Rzeznik said in "Acoustic #3": "What's the point in all the screaming. You're not listening, anyway." 
+
+Basically, this is what I should write: imagine something really bad.... And then, imagine something, even worse. 
+
+Imagine a mountain. (Camera on mountain.) And now, imagine.... A larger mountain. (The camera lurches forward.)
+
+I don't really decide that I'm going to explain something, but then somebody does something exceptionally stupid.... 
+
+I'm just gonna write a coda: Georgy had a bad day. 
+
+Georgy Classified: I had shit day. Nothing is in its right place-- not food, not music, nothing. 
+
+Dan Keyes: If it takes away the pain: it's alright. (Stand up, break free.) We're living so hard, you might not make it through tonight. (Stand up....) Follow the bright lights (bright lights) they might change you (stand up, break free). If you get lost along the way, it's alright.... (Bright lights: can't you see?)
+
+Georgy Classified: And yet, my life is basically shit. 
+
+Gossip Girl: (Georgy doesn't like us anymore: he's in the NKVD.) 
+
+Georgy Classified: I am in shit mood for awhile. Eventually I am not, but unfortunately I am still right. 
+
+Gossip Girl: (Oh, I'm guilty, Georgy! I'm guilty! I'm too Russian! I ought to, be shot!)
+
+Georgy Classified: If only every time man does wrong, it is joke. 
+
+Gossip Girl: [I'm so white, it is a joke.]
+
+Georgy Classified: (stands up, walks up to her, all uniform-like) You are very young, little girl. But you are bad person. Soon you will be older, but Siberia, still cold. And you act this way, your blood runs cold. *walks away*
+
+Prokofiev Quote: Cheers! (everybody says cheers) To Equality, to Justice, and to Comrade Stalin. (everybody repeats this). *he raises his cup to his lips, and mumbles into the cup* (And to the Soviet National Ballet.) (Everybody hears anyway, and laughs, saying, *to the soviet national ballet*, all secret secret commie like.)
+
 Died c. 2000
 
 "Steve Carell"
