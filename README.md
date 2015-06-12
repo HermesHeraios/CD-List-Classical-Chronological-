@@ -59,7 +59,7 @@ Chopin Quote: There's a scratch on my white napkin.... Cancer! It's cancer.
 
 R Schumann: 
 
-Robert may have been this guy married to some chick with a far more goodly supply of PC points--as though ANY.... and may have had a slightly flexible relationship with reality, his mail always overflowing with musics delivered him by spirits, but of all the composers of a morose and creepy age, he was ironically perhaps the only one not to be completely bat-shit. On July 28, 1856, he transitioned into being a spirit himself. 
+Robert may have been this guy married to some chick with a far more goodly supply of PC points--as though ANY.... [of these fucking white people deserve that.... As though emptiness deserves something good.... *Ah*....] and may have had a slightly flexible relationship with reality, his mail always overflowing with musics delivered him by spirits, but of all the composers of a morose and creepy age, he was ironically perhaps the only one not to be completely bat-shit. On July 28, 1856, he transitioned into being a spirit himself. 
 
 Robert Schumann Quote: I can explain this crazy world, ironically, I guess. Like I'm crazy and they're not, they out there in Germany, right.... Anyway:
 
@@ -69,13 +69,13 @@ Hermes the Psychiatrist: Okay, these people: they come from far away-- the roads
 
 Captain Chauvinism: Oh, you're right. I forgot about all that. 
 
-Hermes the Psychiatrist: Right, so, were talking about some sort of landlord character-- 
+Hermes the Psychiatrist: Right, so, we were talking about some sort of landlord character-- 
 
 Captain Chauvinism: Hold on. *phone* No! Tell the renters that if they want the utilities to actually work, I'm going to raise their rent! I sent you to school for a reason, bitch! Come through for me! *phone away* I'm sorry. Continue. 
 
 Hermes the Psychiatrist: *winces* Okay. So.... Okay, so do you want this, municipal support type for the ballet girls to be all like, all grey-bun governess, like.... "Oh, so you're prettier than me, is that it? Well, then I'll turn totally feral on you, and stab! Stab!" Now, if it were like, Richard Nazi or something--
 
-Captain Chauvinism: What does that have to do with the girl's life. We're talking about relativism hiding inside statistics. 
+Captain Chauvinism: What does that have to do with a girl's life. We're talking about relativism hiding inside statistics. *Whiteness*.
 
 Hermes the Psychiatrist: (ignoring him) But if he's like, Strauss the Party-master: "Come to the party! Bring a bottle of wine! Ah! Be good to us!" And not a grey-bun governess. You see. 
 
@@ -91,38 +91,89 @@ Captain Chauvinism: Well, if we have to tolerate the elite, maybe we can surpass
 
 Hermes the Psychiatrist: His orderly and thought-provoking yet entertaining music helps people cope with emotional disturbances and process things more effectively. 
 
-Captain Chauvinism: Yeah, even Mozart or whoever will be all like: Quite skilled, for a monkey. And Russians are even worse: they don't do the strange, subtle thingBut I prefer General Craig Haig, the right arm of the Pope: the apostle of the simple truth which the pompous deny. 
-Hermes the Psychiatrist: I'm sorry; you're breaking up. "Apple trees dance in the sea"? 
-Captain Chauvinism: Because you're not as arrogant as I am, you are far more arrogant than I am. 
+Captain Chauvinism: Yeah, even Mozart or whoever will be all like: Quite skilled, for a monkey. And Russians are even worse: they don't do the strange, subtle thing: "sonata form"-- the wall between you and a hateful reality which is difficult to process. Civilization. (Like that cartoony game about genocide made by that Jewish guy named Meier, who packed it full of relativism.) They do this thing, the Russia Land of Contrasts thing, (not Germany Land of little office worker bourgeois white people), where each theme is more like a song or an independent track and not subtly derived from the one that came before it, like one of those infinite regression loops: I'm holding a picture of a guy who has a mirror, but inside that picture, there's *another* guy.... Ironically, that's the anti-Russian thing: Oh, and they got anti-Russian.... I mean, in many ways, it's broadly similar, but you can detect this subtle difference between more subtle and meaningless, feeble distinctions on the German side, and more striking and healthy, intense contrasts on the Russian side: and it's important to hate people if you can think of a reason. The Russians weren't sufficiently distant from the land and the people: they still had songs in their head, literally.... It's a bridge to a place you can't control.... But yeah. I prefer General Craig Haig, the right arm of the Pope: the apostle of the simple truth which the pompous deny. 
+
+Hermes the Psychiatrist: I'm sorry; you're breaking up. "Apple trees dance in the sea"? And besides, in that paragraph you were too much of a literal sock-puppet. Try to stay in character, Captain McNazi. 
+
+Captain Chauvinism: Sorry. But yeah, because you're not as arrogant as I am, you are far more arrogant than I am. 
+
 Hermes the Psychiatrist: *sighs in defeat* *flips opens a book* Okay: let's look at our options in terms of pills. 
+
 Captain Chauvinism: *still babbling* I blame Ringo. 
+
 Hermes the Psychiatrist: *looking at a page* More severe, maybe.... *flips, then* No, Ringo was the greatest. 
+
+Florestan Eusebiovich: You're ill, Peter. 
+
+Peter Tchaikovsky: Exactly.
+
+Florestan Eusebiovich: I'm being very sincere, and non-sarcastic, right now. 
+
+Peter Tchaikovsky: Well, of course, the facts are on your side.... After all, the facts *are* on your side: you're a German. 
+
+Florestan Eusebiovich: I'm an entertainer. 
+
+Peter Tchaikovsky: You utilize the maple leaf for this purpose. 
+
+Florestan Eusebiovich: A rag is not just--
+
+Peter Tchaikovsky: All right, cut it out with the puns. 
 
 .... I mean.... Chopin was okay; he certainly had talent, clearly. And he wasn't pretentious or fake, you have to give him that. He was-- he was just like that. 
 
 Village Psychiatrist: *tired* Okay, which one of you was, ah, "paranoid melancholia", or whatever it was. 
+
 Robert Schumann: *pointing* Him! It was him! 
+
 Village Psychiatrist: Don't worry, son. Science and civilization are advancing. Pretty soon they'll be building the very first "Doctor Pepper" factories. You're in good hands. 
+
 Chopin: No, no, ah!..... Ah!..... 
+
 *he gets dragged away* 
+
 17-yr. old Demeter: So mean, dad. 
-Robert Schumann: Well, he's very melancholic, a little paranoid.... So it's true, or plausible, or something. 
+
+Robert Schumann: Well, he's very melancholic, and a little paranoid.... So it's true, or plausible, or something. 
 
 Which is more than you can say, sometimes, don't you think? 
 
 Nuclear Fission Mom: Robert, you little motherfucker! 
+
 Chauvinist: That's right, Robert. I'm just gonna step out for a minute, but.... Whatever. I'm pretty moral: not like you.... I mean, I'm so weak, and I feel so guilty, so you'd better be the one. 
+
 *leaves* 
+
 Nuclear Fission Mom: Robert-- 
+
 Artemis: Is coming with me. So don't make me cut you, bitch. 
 
 *later* 
+
 Robert Shoemahn: So how did you like it. It was called, "Carnival Ferry in C Major". 
+
 Aphrodite: I wasn't sleeping; it was good. 
+
 Dionysios: *fat generosity* It was wonderful, little man! 
+
 Fleetwood Mac Guy: *Dionysios hair* Yeah man, it was really cool. 
+
 Mozart: So much better, what I write. 
+
 Aphrodite: *laughs lazily, fondles Wolfie's hair* Always jealous, Robert Clementi, somebody. My little governess. 
+
+John Mayer: You're like twenty-two girls in one-uh, uh-un. 
+
+And none of them know what they're running fro-uh, uh-un....
+
+Mozart: I am very consistent, myself, not like Robert Schumann.... Italiani sono.... crapperlicherkeit! 
+
+John Mayer: You're like twenty-one girls in one-uh, uh-un. 
+
+And none of them know what they're running fro-uh, uh-um. 
+
+Taylor Swift: *going through her albums with Maeve, Morgana and Macha, she mumbles absent-mindedly* Yeah, who the hell am I right.... *then she catches herself, and, tilting her head like an animated doll, she says* No, I know exactly who I am. I'm Swifty. 
+
+John Mayer: I'm sorry. I'm afraid of you. I'm going to hide in the hills. I'm leaving my cell phone here, so that no one will be able to contact me. No one will be able to find me. 
 
 Died c. 1900
 
