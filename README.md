@@ -1,6 +1,38 @@
 # CD-List-Classical-Chronological
 There are times when I want to scoop up all of my classical CDs, and get a dog to slobber all over the silver side. 
 
+You know, it's like.... Other people, go to the club and dance, and they listen to somebody from the Abba tradition.... You know you shouldn't be too much to be pleased, or too far away for anybody to find you to deliver your mail.... I get to the point where I'm like, I should listen to Spanish music: it's important-- you know, and I'm all, "Fijate Bien" by Juanes was probably the best rock album, maybe at least, since the 60s, since white people decided that they didn't need to be friends with Elmore James anymore: I mean, to make an annihilation out of a crushing rout.... (Molotov: Oh no, we have many divisions left: it's just that they're all getting their asses kicked and getting driven back in every direction.... You know it's going to be a long war-- maybe eventually they'll get tired of killing so many of us. Here. For your speech. Famous Russians Generals. Look at those names, right? Are those real names, even? Don't even practice. I want this to be funny....).... (You know, Paul McCartney or somebody, David Gates, he's all.... You know, and it's like: Okay, Jude, so, that's how you fix the thousand-plus year hole.... Stay with me, Jude. Stay with me for me than six months.... Ah. Jesus. *Ah*....).... And it's like.... You know, are people going to resent me saying that? John Stevens: *you* are the best rock artist alive today. Screw The Incredible Death Punch, screw Coldplay, even, with their snarky jokes about WWI: *you*. And then Maroon 5, and John Mayer. But first *you*. Would he want me to lay that on him? Would he feel insulted, even. Jesus, not another lecture about how pop culture comes out of America, where the synthesis happens on white people's terms.... It's like. Uh. Such a problem. You know. I cause for problems, for other people! I do. I really do. Ugh.... You know, because I'm trying to get Jenny and I seated at the restaurant, and trying to get our kids banana peels tossed off somewhere: you know, to other people, their trash really is just shit, and it's a little annoying.... And we get so weird about every little thing we need, people are like, Ugh. Needy white people. They rule the world. Here comes Mr Carell again. I wonder what he's trying to make up for now. I don't want to look behind me.... Ah, shit. Freshwater waste. Courtesy of white people. God damn....
+
+But that's not who I am. You know. You don't understand. No one has ever asked me to join a band. I am not in Maroon 5. The fact that I can remember less popular 70s soft rock bands is something that routinely comes across as encyclopedic. Girls do not pay attention to me, and they never have. I am not in a band. Lucky me, right, I must not be....
+
+*Ugh*.... I'm an intellectual. I'm an intellectual. I'm an intellectual.... I'm the whitest, white person.... Ugh. I'm the white intellectual: the whitest kind of person.... More than other people are: I am. 
+
+I'm so ashamed of myself, of all of us: I don't want to be surrounded by all these people, to be, part of any of it....
+
+*I'm a little upset, you guys....* 
+
+*Anymore, ever again*....
+
+I.... 
+
+Like, on "Live at the BBC, Volume Two", the guys were like, ugh, I don't like playing for these people-- they even did a couple crappy songs, like they were William Wallace white monkeys, and finally they did "I Feel Fine" as the last track. They screwed it up of course and had to start again: I Don't Feel Fine.... I tried playing "I Feel Fine" on piano once, too slowly. That didn't really go over. I never really cut out to be a musician, certainly not a pop musician. Right. Ah.... God knows I can't dance. "Look at these ballerinas, guys: they know how to dance.... I just, you know, I'm Swifty...."
+
+I said: *hand clap* Oh my, what a marvelous tune. It was the best night, never would forget how she moved. The whole place, was dressed to the nines, and we were dancing, dancing.... Like we're made of starlight, starlight.... Like we're made of starlight, starlight.... 
+
+(Georgy Classified: Yes....! Yes. A good plan.) 
+
+Don't you find yourself involuntarily drawn to the past: ugh. Must self-consciously correct! 
+
+(Boris Infantry: Oh shit. It's supposed to turn the other way! What the hell's wrong with you people! *artillery shell lands four feet away, spraying dirt like water* Fuck! Fuck! Turn it around! Turn it around!) 
+
+Like we're Cinderella.... Like we're Pete Tchaikovsky....
+
+1989. 
+
+"You have self-consciously refered to a year." 
+
+Don't: don't push my buttons. 
+
 The ages of the land: 
 
 Died c. 1750: I'm pretty sure that I'm better than you. Yeah, I'm pretty sure. 
