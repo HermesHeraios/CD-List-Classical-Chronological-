@@ -9,6 +9,8 @@ But that's not who I am. You know. You don't understand. No one has ever asked m
 
 I'm so ashamed of myself, of all of us: I don't want to be surrounded by all these people, to be, part of any of it....
 
+[You feel better, later, though.... Hermes: That's right. You feel sad. You feel sad because it's your fault: you're part of it.... Good job. Good decision.... Would you like, a napkin? So appropriate, for this situation....]
+
 *I'm a little upset, you guys....* 
 
 *Anymore, ever again*....
@@ -77,7 +79,7 @@ JS Bach Quote: You remember the quadratic equation?.... Good. Then you are permi
 
 Died c. 1800
 
-(Classical #3?) Mozart: 
+(Classical #3/4) Mozart: 
 
 Mozart may have sometimes had a personality like a childish teenager, but of all the composers, he was perhaps the one most likely to be energetic and happy. It has been severely documented that on December 5, 1791, Salieri killed him because he was jealous of his girlfriend, and so he died. 
 
@@ -247,11 +249,21 @@ Okay.
 
 {Hermes: (giving a lecture) But the rules do apply, white person. (He leans in, and lowers and sharpens his voice.) *The rules do apply.* (door opens) Ah! Peter Tchaikovsky, my favorite friend in the world! Pete, look at what I have to put up with. The little shit is supposed to tell me, "Tell me about a time when you were sad". And look what I have to put up with. *with flare* Look what I have to put up with!}
 
-J Strauss: 
+(Classical #3/4) J Strauss: 
 
 Strauss the Son may have been this guy who wrote dance music because it's fun, but of all the composers, he is perhaps the master of rich girl music, which is basically what classical music is. On June 3, 1899, the rich girls mourned dramatically, upon hearing that he had died. 
 
 Johann Strauss Quote: In the old days I think they wrote good dances for dancing with people you don't really know, yet, and I write good dances for when you're with your friends. 
+
+* The Blue Danube & Other Waltz Favorites [folk dance] 
+
+{Dance: not ballet. Oh, you mean any other kind. No. Not any other kind. *This one other kind*. Well, what do they call it. They have to call it something. I know, they call it a waltz, but: there are *a bunch* of other kinds, which are all the same kind, *basically*.... (And then as soon as I'm done-- hand it off to some guy in France, who gets to do it all again.... "Not only are white people the best people: but (we) are the best white people...." [That's right: it's your village, that no one' seven heard of: good job white people.... *on a hillside: lazy clapping*] I'm sorry. I'm sorry.... Ah.... I'm sorry, right: "Waltz/Waltzer/Valse"-- I found the best one.... Or, I collected all of them: I have more power.... Ah. Ugh.... Ah, that's funny. Yeah, there's no real difference: it's communism! For white people.... So funny.... Wait, what does that mean?.... It means I'm a little lost at sea; I'm a little birdie in a big old tree; Ain't nobody looking for me: out on the highway...." *spurt of laughter* Who wants to guess the date? *spurt of laughter* 1870, anyone? Any takers for 1870?.... *spurt of laughter* Anybody want to lose their money.... *annoying game show host thing* Ah, you only missed it by, the entire 20th century, ah.... 
+
+John Mayer: I mean, there were always-- Ah, bring that back! You were supposed to pay for that!.... I know, but.... I mean, but now people are like:.... I mean, *nothing is happening*: nothing is happening, and people are * anxious* over *nothing*.... I'm not new wave. I'm not an old man, but I'm not new wave, either.... You'll have to do another category, on the form.... 
+
+The other funny thing is, often, not always, but often the less elite people changed less rapidly: I mean, it's not stasis, there are different people-- Do you remember that weird guy? Nobody could understand what he was on about, him? Oh yeah. He died.... Unless there's a real crisis, [you mean they left Nazis in my kindergarten books? No.... No.... Dragon, come on. Improbable. Just because I read about it every day.... You shouldn't read about it every day!!!!], those guys are probably not true/unwilling heroes, whatever.... I mean, Mozart is a much more jealous man, than Johann Strauss: either one.)
+
+Folk. Folk dance. Sue me.}
 
 Brahms
 
